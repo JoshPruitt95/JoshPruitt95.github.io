@@ -1,1 +1,1 @@
-# JoshPruitt95.github.io
+# joshuapruitt.me
